@@ -1,0 +1,2 @@
+This terrifying marshmallow mummy cake is a real Halloween showstopper that's sure to impress your guests.
+ Vanilla-flavoured sponge sandwiched with a gory cherry jam and creamy coconut filling – with just a few simple decorations this Halloween bake really comes to life. Give this brilliant Halloween party idea a go! Before starting, it's worth noting that you will need some cocktail sticks and a 30cm (12in) round cake board for this recipe
